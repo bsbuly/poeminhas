@@ -1,4 +1,4 @@
-# Sonhe :dream:
+# Sonhe :man_astronaut:
 
 "Seja o que você quer ser,
 porque você possui apenas uma vida e nela só se tem uma chance

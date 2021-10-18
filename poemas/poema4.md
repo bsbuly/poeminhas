@@ -13,4 +13,3 @@ Pesa como pesa uma ausência
 E a lágrima que não chorou
 Tem o imaterial peso de uma solidão
 No meio de outros"
-
